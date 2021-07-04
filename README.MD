@@ -1,0 +1,1 @@
+Estou achando o treinamento incrível. Sinto que realmente estou aprendendo novos conteúdos e habilidades. A interação com a galera no Slack é sensacional. Estou adorando. 
